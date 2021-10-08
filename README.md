@@ -1,2 +1,2 @@
-# flgmodisepentecost.github.io
+# flgmodisepentecost
 International Pentecost Holiness Church FLG Empire
